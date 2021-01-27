@@ -15,3 +15,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns:Erciyuan ...
 
 -->
+1.I love China.
+2.I love learning ,even though I'm not distinguished at it.
+3.I love reading recently, regardless of my little cognition.
+4.I'm shy,afraid of talking with beautiful girl.
