@@ -19,3 +19,8 @@ Here are some ideas to get you started:
 2.I love learning ,even though I'm not distinguished at it.
 3.I love reading recently, regardless of my little cognition.
 4.I'm shy,afraid of talking with beautiful girl.
+
+My skills:
+1.I like playing basketball.
+2.I like Chinese chess.
+3.I'm a little familiar with the basic operation of C.
